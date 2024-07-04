@@ -8,6 +8,8 @@
 - email- **sithuminikjagoda@gmail.com**
 
 - My blogsite- **(https://convoperch.blogspot.com/)**
+  
+- My pinterest design page- **(https://www.pinterest.com/convoperch/)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
